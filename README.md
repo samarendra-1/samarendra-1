@@ -1,0 +1,6 @@
+- 👋 Hi, I’m SAMARENDRA
+- 👀 I’m interested in ...CODING & DATA
+- 🌱 I’m currently learning ... DATA SCIENCE
+- 💞️ I’m looking to collaborate on ...DATA SCIENCE
+- 📫 How to reach me ...samarendrarout24@gmail.com
+- 😄 Pronouns: ...HE/HIS
